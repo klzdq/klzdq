@@ -1,16 +1,31 @@
-## Hi there 👋
+18款夜间禁用app下载18禁成人🍆🍑🔞猛撞图片晚上禁用100款应用
 
-<!--
-**klzdq/klzdq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<a href="https://2ndjcj11.kesang6to.com?https://github.com">→→最/新/观/看/入/口←←</a>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+这还
+现在看，
+可如今，被她发现了他在人间所做的一切，他又害怕了。
+
+这件事一旦捅到神界，对御天的打击将会是毁灭性的，不止他的地位名望会受影响，更甚者他的神籍都有可能不保。
+
+见扶摇不说话，御天又后退了一步，“这样，你先救我出去，我们先回神界，我会把我们之间的误会都解释清楚，如何？”
+
+别说扶摇了，就连几个听墙角的禁军都忍不住想笑。
+
+仇深似海，还让别人救你出去，还要回神界，回神界干什么？让你休养生息，好反杀吗？
+
+这不是放虎归山是什么？
+
+扶摇听到这，恶心得从掌心化出无数菱形冰凌，尽数打进了御天体内。
+
+御天强大的神力将御天打到了后面墙上，身上瞬间有无数个血洞往外喷血。
+
+扶摇连看他一眼都嫌恶心，撂下一句“你慢慢做梦吧”便转过身走了。
+
+一抬头，守卫的几个禁军都眼巴巴看着她，神女不是说要帮他们的吗？还帮不帮了？
+
+扶摇轻笑，又给地下牢笼打下了三重结界。
+
+地牢的天窗重新关上
